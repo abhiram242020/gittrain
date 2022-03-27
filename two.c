@@ -1,2 +1,3 @@
 i am here to  teach
-i am fine
+i was wondered
+i am there

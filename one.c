@@ -1,2 +1,2 @@
-there are two people around you
+welcome
 grest
